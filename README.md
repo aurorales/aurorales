@@ -1,5 +1,4 @@
-hihi I’m @aurorales
-I’m interested in some Roblox games, osc, lbp, and more ig?
+
 
 <!---
 aurorales/aurorales is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

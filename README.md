@@ -1,6 +1,4 @@
 hi!
-
-<!---
-aurorales/aurorales is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Idk what to say on here.
+actually i think i do.
+Working on my strawpage !

@@ -11,4 +11,4 @@ guuuys.. how do i make a strawpage save bc im lwk clueless at times?
 <img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/73d871e9-ffb0-4bad-8d4b-8e69f1e75a19" />
 chi from chobits! ^^
 
-https://dl.glitter-graphics.com/pub/3146/3146718bbnf7ki65m.gif -- go to www.glitter-graphics.com
+<a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/3146/3146718bbnf7ki65m.gif" width=79 height=105 border=0></a>

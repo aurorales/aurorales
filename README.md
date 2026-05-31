@@ -15,3 +15,4 @@ chi from chobits! ^^
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/3146/3146718bbnf7ki65m.gif" width=79 height=105 border=0></a>
 
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/2844/2844717t4rb8zd418.gif" width=190 height=190 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>

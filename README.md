@@ -1,4 +1,4 @@
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1420/1420300isaa3d0966.gif" width=454 height=144 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/989/989321gyey13hzit.gif" width=500 height=25 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
 hi!
 Idk what to say on here.
 actually i think i do.
@@ -13,5 +13,4 @@ guuuys.. how do i make a strawpage save bc im lwk clueless at times?
 chi from chobits! ^^
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/3146/3146718bbnf7ki65m.gif" width=79 height=105 border=0></a>
-
 

@@ -1,4 +1,4 @@
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/888/888867g7cs1ibg1g.jpg" width=450 height=65 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
+<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/3026/3026824p1ybon2cye.gif" width=350 height=196 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 hi!
 Idk what to say on here.

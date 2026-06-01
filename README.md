@@ -12,6 +12,7 @@ guns.lol/asteraceaes !!
 
 guuuys.. how do I make a strawpage save bc im lwk clueless at times?
 
+<a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/1101/1101256d18s8hveb9.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
 
 <img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/73d871e9-ffb0-4bad-8d4b-8e69f1e75a19" />
 chi from chobits! ^^

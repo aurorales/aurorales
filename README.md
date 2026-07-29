@@ -1,8 +1,8 @@
 <H2>HIIIIII and welcome 2 my github 𓏲ּ𝄢 </H2>
 <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/3026/3026824p1ybon2cye.gif" width=350 height=196 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
- <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/3770/3770111azmjtn2skv.gif" width=650 height=34 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></hi>
+ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/3770/3770111azmjtn2skv.gif" width=650 height=34 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
- hi!
+hi!
 Idk what to say on here uhh
  
  Actually I think I do
